@@ -2,6 +2,8 @@
 
 https://github.com/user-attachments/assets/80a515b0-0057-4d97-aeec-9e07dd5b60f1
 
+https://github.com/user-attachments/assets/6f6a7639-9c14-42e5-b292-1215c641ca4f
+
 ✝️❤️😃🙏👍
 
 GOD JESUS SAVIOR speak say :
